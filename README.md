@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Roneet904
-- 👀 I’m not good at coding.
+- 👋 Hi, I'm Roneet
+- I love to read.
 - You can reach me at Roneet#1813 on Discord.
 
 
